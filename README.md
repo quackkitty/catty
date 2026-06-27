@@ -2,7 +2,7 @@
 
  ────୨ৎ────
  
-❤︎⁠  .   hi! im catty. !! -> 14 <- !! i prefer to be called catty but some other alternative names would be
+❤︎⁠  .   hi! im catty. 14, turning 15 in august. i prefer to be called catty but some other alternative names would be
  cattypillar, cat, or vinny. u could also give me a new nickname if u want!
 
 please only use she/her and feminine language on me no he/they/it or ill kill you
