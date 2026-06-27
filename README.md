@@ -13,15 +13,13 @@ id pref if nobody 20+ ints, but its not a set dni
 
 im not interested in online dating please dont try to flirt with me 😭
 
-im nice and optimistic but i can get irritated very and im very sensitive to insults dont be mean to me 
+im nice and optimistic but i can get irritated very and im very easily sensitive to insults dont be mean to me 
 
 i enjoy collecting, mcyt, squid game, watching movies, and kissing girls
 
 you can take inspo from my skins but dont make it obvious
 
 dont use tone tags on me it makes me feel babied
-
-i love all my friends!
 
 i like car seat headrest, beabadoobee, and faye webster
 
