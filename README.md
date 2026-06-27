@@ -11,9 +11,9 @@ int please!! never be scared to talk to me im on a social game for a reason!
 
 id pref if nobody 20+ ints, but its not a set dni
 
-im not interested in online dating please dont try to flirt with me 😭
+im not interested in online dating dont try to flirt with me 😭
 
-im nice and optimistic but i can get irritated very and im very easily sensitive to insults dont be mean to me 
+im nice and optimistic but i can get irritated very easily and im very sensitive to insults dont be mean to me 
 
 i enjoy collecting, mcyt, squid game, watching movies, and kissing girls
 
